@@ -4,11 +4,17 @@
 🔰Contato Comercial:vitintorres123gtr@gmail.com 
 
 
-✨️Atualmente estou no projeto dayzRp
-
 
 📢meus pprojetos; https://discord.gg/fDnHtqzeMk
 
 
+
+
+
+
+
+
 viva a vida  ;)
+
+
 
