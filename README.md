@@ -1,10 +1,14 @@
 - ola me chamo ( vitor ) e sou dono de um dos maiores servidores de dayz do samp.
 
-✨️aonde possa me encontrar? fácil "discord, Instagram, Facebook  e Twitter.
 
-🔰apenas 13 anos fundei o "VSRP" hoje em dia não sou mais dono de lá.
+🔰Contato Comercial:vitintorres123gtr@gmail.com 
 
-📢qualquer dúvida entrem no meu e-mail e mandem um mensagem Vitoremanuel123oi@gmail.com
 
-seja feliz :)
+✨️Atualmente estou no projeto dayzRp
+
+
+📢meus pprojetos; https://discord.gg/fDnHtqzeMk
+
+
+viva a vida  ;)
 
