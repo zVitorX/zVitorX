@@ -8,10 +8,7 @@
 📢meus pprojetos; https://discord.gg/fDnHtqzeMk
 
 
-
-
-
-
+✨️Atualmente estou no projeto dayzRp
 
 
 viva a vida  ;)
